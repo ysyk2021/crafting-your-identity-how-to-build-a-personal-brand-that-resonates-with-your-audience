@@ -18,7 +18,7 @@ In this book, you'll learn:
 
 Whether you're just starting to build your personal brand or looking to take it to the next level, "Crafting Your Identity" provides the guidance, tools, and insights you need to succeed. So, get ready to craft a personal brand that resonates with your audience and achieves your goals!
 
-MingHai Zheng is a writer based in Wuhan, China, who focuses on writing articles about workplace and management topics. He has written hundreds of articles on these topics and is dedicated to sharing his insights and experiences with others who are interested in improving their careers and their businesses.
+MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
 
