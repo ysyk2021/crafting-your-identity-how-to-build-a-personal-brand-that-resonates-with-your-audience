@@ -1,5 +1,3 @@
-Building Consistency Across All Brand Touchpoints
-========================================================================================
 
 Creating a visual identity is essential for building a personal brand that resonates with your audience. In this chapter, we will explore the importance of creating a visual identity and how to build consistency across all brand touchpoints.
 

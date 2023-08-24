@@ -1,5 +1,3 @@
-Chapter 4: Creating a Visual Identity
-=====================================
 
 Your visual identity is a crucial component of your personal brand. It involves creating a consistent look and feel across all brand touchpoints, including your website, social media profiles, business cards, and other marketing materials.
 

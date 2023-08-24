@@ -1,5 +1,3 @@
-The Importance of Leveraging Social Media for Personal Branding
-===================================================================================================
 
 Social media has become an essential tool for personal branding. In this chapter, we will explore the importance of leveraging social media for personal branding and how to do it effectively.
 

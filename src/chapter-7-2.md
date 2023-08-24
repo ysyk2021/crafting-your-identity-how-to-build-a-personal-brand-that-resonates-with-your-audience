@@ -1,5 +1,3 @@
-Techniques for Effective Social Media Management
-====================================================================================
 
 Social media is a powerful tool for building a personal brand that resonates with your audience. In this chapter, we will explore techniques for effective social media management.
 

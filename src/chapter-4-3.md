@@ -1,5 +1,3 @@
-Developing a Storytelling Framework
-===================================================================================
 
 Developing a consistent brand story is essential for creating a personal brand that resonates with your audience. In this chapter, we will explore how to develop a storytelling framework to guide your brand story.
 

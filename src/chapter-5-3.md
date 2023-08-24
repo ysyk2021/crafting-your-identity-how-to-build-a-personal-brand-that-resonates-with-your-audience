@@ -1,5 +1,3 @@
-Developing a Brand Style Guide
-=====================================================================
 
 Developing a visual identity is an important aspect of creating a personal brand that resonates with your audience. In this chapter, we will explore techniques for developing a brand style guide to ensure consistency in your visual identity.
 

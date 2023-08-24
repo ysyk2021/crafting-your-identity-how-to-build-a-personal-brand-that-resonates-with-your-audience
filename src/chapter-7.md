@@ -1,5 +1,3 @@
-Chapter 6: Leveraging Social Media
-==================================
 
 Social media is a powerful tool for building a personal brand that resonates with your audience. In this chapter, we will explore the importance of leveraging social media for personal branding and techniques for effective social media management.
 

@@ -1,5 +1,3 @@
-Techniques for Developing a Consistent Visual Identity
-=============================================================================================
 
 Developing a consistent visual identity is key to creating a personal brand that resonates with your audience. In this chapter, we will explore techniques for developing a consistent visual identity.
 

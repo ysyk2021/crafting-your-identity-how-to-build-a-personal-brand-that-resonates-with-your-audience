@@ -1,5 +1,3 @@
-Building Engagement and Community Online
-==================================================================================
 
 In today's digital age, building an online presence is crucial for building a personal brand. In this chapter, we'll explore how to build engagement and community online to strengthen your personal brand.
 
