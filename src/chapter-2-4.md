@@ -1,5 +1,4 @@
-Chapter: Building Trust Through Effective Personal Branding
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we explore the importance of building trust as a key component of effective personal branding. Establishing trust is crucial for creating a personal brand that resonates with your audience and forms a strong connection. We discuss strategies and practices that can help you build trust and credibility in your personal brand.
 
